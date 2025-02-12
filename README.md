@@ -1,1 +1,2 @@
-# comcast
+- Thank you Abimerek for being there with me and cooperation. I have scheduled your cancellation for the date 02/12/2025. Here's your cancellation order id: 1001928956802093.
+- If do you have any rental equipment , you can return the equipment to the nearest XFINITY or UPS store within 10 days after the cancellation date. You just need to bring the equipment to the UPS store. They will pack it and send it to Xfinity.
